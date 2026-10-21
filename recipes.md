@@ -505,3 +505,64 @@ How to make it yourself:
 6. Close the lid and cook on the white rice setting.
 7. When it's done, keep the lid shut for 10 more minutes so the center finishes steaming.
 8. Gently fold from the bottom up with a rice paddle to mix in the sauce and veggies, then serve.
+
+
+# One-Pot Spicy Chuck Bulgogi Rice Bowl
+tags: rice cooker, beef, korean
+keeps: Fridge 3–4 days. Freezes well for about 2 months.
+
+### My own recipe, built from what was in the fridge. Macros are estimates.
+> Macros are estimated for 4 servings from one 1 lb (450 g) package of chuck. That's about 28 g protein per bowl, lower than Joe's bowls. For around 40 g, make 3 servings from the same amounts, or add a second package of beef.
+> If your package isn't 1 lb, use "Or start from what you have", type in the weight on the package, and everything else scales to match.
+> The sauce goes on top with the beef, not at the bottom of the pot. Gochujang and BBQ sauce have a lot of sugar and will scorch on the hot bottom of the pot.
+> The veggies release a lot of water (zucchini and bok choy especially), so the recipe uses less water than plain rice would. If the rice comes out a bit firm, add 2–3 tbsp water and run keep-warm for 10 more minutes.
+> Want caramelized edges like real bulgogi? Sear the marinated beef in a very hot pan for 2–3 minutes, then add it to the rice cooker for the last 10 minutes or just fold it in at the end.
+> Black garlic is soft, sweet and mellow. Mash it with a fork into the sauce so it spreads evenly instead of staying in sticky lumps.
+> Chuck is fattier than eye of round, which keeps it tender in the rice cooker. It's also why the fat is higher than in the other beef bowls.
+> Taste before adding extra salt. The veggies are already seasoned, and gochujang, BBQ sauce and soy sauce are all salty.
+
+Macros per serving (estimated):
+
+Protein: 28g
+Carbs: 70g
+Fat: 22g
+Calories: 605
+
+Ingredients (makes 4 servings):
+
+[Veggies]
+
+- 250 g bok choy (about 4 baby heads)
+- 2 medium carrots, thinly sliced
+- 1 yellow onion, thinly sliced
+- 1 medium zucchini, sliced into half-moons
+- 1/4 tsp salt
+- 1/4 tsp black pepper
+- 1 tbsp soy sauce
+- 1 tsp sesame oil
+
+[Bulgogi Sauce]
+
+- 1 lb thinly sliced chuck beef (1 package)
+- 2 tbsp gochujang
+- 3 tbsp Japanese BBQ sauce
+- 4 cloves black garlic
+- 1 tbsp chili flake paste (adjust to taste)
+- 1 tbsp soy sauce
+- 1 tsp sesame oil
+
+[Rice Cooker]
+
+- 1 1/3 cups jasmine rice, uncooked
+- 1 1/4 cups water (or beef bone broth)
+
+How to make it yourself:
+
+1. Thinly slice the onion and carrots, cut the zucchini into half-moons, and cut the bok choy into bite-size pieces.
+2. Toss the veggies with the salt, black pepper, soy sauce and sesame oil.
+3. In a bowl, mash the black garlic with a fork, then mix in the gochujang, Japanese BBQ sauce, chili flake paste, soy sauce and sesame oil to make your bulgogi sauce.
+4. Pull apart the beef slices and toss them in the bulgogi sauce until coated. Marinate for 15–30 minutes, or overnight in the fridge.
+5. Wash the rice until the water runs mostly clear, then add the rice and water to your rice cooker and spread it flat. Don't stir after this.
+6. Spread the seasoned veggies on top in the pot, then lay the beef on top in an even layer and scrape any leftover sauce over it.
+7. Cook on the normal cook setting, usually 30–40 minutes. Check that the beef is no longer pink, then let it sit on keep-warm for 10 minutes.
+8. Fold everything together and divide into 4 meal prep containers.
